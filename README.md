@@ -1,0 +1,3 @@
+# KanyeQuest
+
+Weirdest Personal Project you will ever see... 
